@@ -1,0 +1,2 @@
+# NITDA-BLOCKCHAIN-SCHOLARSHIP-PROGRAM-
+What is Blockchain?
